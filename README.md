@@ -10,7 +10,7 @@
   - 📸 Instagram: [instagram.com/iamabdulrazzakghouri](https://www.instagram.com/iamabdulrazzakghouri/)  
   - 👻 Snapchat: [snapchat.com/add/justabdulrazzak](https://www.snapchat.com/add/justabdulrazzak)  
 
-## 😄 Pronouns  
+## 😄 Nick Name  
 Ghouri  
 
 ## ⚡ Fun fact
